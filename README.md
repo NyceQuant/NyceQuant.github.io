@@ -1,1 +1,0 @@
-# NyceQuant.github.io
